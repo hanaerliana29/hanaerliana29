@@ -2,7 +2,7 @@
 - 👀 I’m interested in language and music
 - 🌱 I’m currently learning i'm not sure
 - 💞️ I’m looking to collaborate on everywhere 
-- 📫 COntact me by email
+- 📫 You all can contact me by email
 
 <!---
 hanaerliana29/hanaerliana29 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
